@@ -10,10 +10,10 @@ This paris trip (7 days) is during christmas season; We do want to make good use
 
 
 ### Must Visit
-#### Eiffel
-
-#### Cafe de Flore
-2014 Blog post by [citynotes](http://citynotes.me/2014/cafedeflore). Also included the menu, seems to be bit pricy. 
++ Eiffel
+  Open on Christmas. Do get there early though. 
++ Cafe de Flore
+  2014 Blog post by [citynotes](http://citynotes.me/2014/cafedeflore). Also included the menu, seems to be bit pricy. 
 
 
 ### Useful links
