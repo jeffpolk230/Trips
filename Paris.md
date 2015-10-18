@@ -7,6 +7,8 @@ This paris trip (7 days) is during christmas season; We do want to make good use
 [官網](http://www.lecrazyhorseparis.com/en)
 
 ### Must Eat
+
+
 ### Must Visit
 #### Eiffel
 
@@ -18,5 +20,10 @@ This paris trip (7 days) is during christmas season; We do want to make good use
 [巴黎小生活](https://www.facebook.com/parisohlalamylifeinparis)
 
 
+
 ### Museums
+
+
+### Restaurants 
+[bofinger](http://www.bofingerparis.com/en/) Seafood. 
 
